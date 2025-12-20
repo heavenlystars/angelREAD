@@ -11,7 +11,7 @@ american serv- 668778551
 
 ✦ abt me! 🦢
 fandoms - genshin, tgcf, mdzs, fnaf, many animes lol, stranger things, hunger games and many more 🦕☆
-female!!! ~ bisexual ✿💤 taken 🫩
+female!!! ~ bisexual ✿💤
 ripe age of 17 
 i will play genshin with u anytime if im not busy ❤︎🍃
 
