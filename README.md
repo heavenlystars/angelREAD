@@ -2,7 +2,7 @@
 click this for info! i can figure how to do that description so...
 `Pony town ❀࿐
 usually in the hoyo area! will sometimes be in my island! ❀˖°🌀
--cuds and interaction is okay :3 if my name includes offtab it means i wont respond to you tho! ⪩. .⪨ 🫧
+-cuds and interaction is okay :3 im like usually/always offtb so w2i - prob l8 rsp! ⪩. .⪨ 🫧
 ᥫ᭡ DNC my ponies idc how bad they look  🗣️ ᶻ 𝗓 𐰁 .ᐟ
 
 GENSHIN!꩜
