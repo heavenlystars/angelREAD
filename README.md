@@ -12,6 +12,6 @@ american serv- 668778551
 ✦ abt me! 🦢
 fandoms - genshin, tgcf, mdzs, fnaf, alnst, haikyuu, stranger things, hunger games and many more 🦕☆
 female!!! ~ i like women and men guys one at a time ✿💤
-2/4 - bday. omg im almost legal wtf im kinda old. bring my prime teen years BACKKKKK
+2/4 - bday. age...18
 i will play genshin with u anytime if im not busy ❤︎🍃
 
